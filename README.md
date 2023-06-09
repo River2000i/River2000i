@@ -1,5 +1,4 @@
-### Hi there 👋
-![River2000i's github stats](https://github-readme-stats.vercel.app/api?username=River2000i&count_private=true&theme=buefy&theme=dark&show_icons=true)
+### Hi there 🌸
 
 <!--
 **River2000i/River2000i** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
