@@ -1,5 +1,9 @@
-### Hi there 🌸
-在有生的瞬間能遇到你，竟花光所有運氣。
+### 在有生的瞬間能遇到你，竟花光所有運氣。
+2023.11.9
+
+差点抢到 eason 厦门演唱会的票，难过
+
+
 <!--
 **River2000i/River2000i** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
